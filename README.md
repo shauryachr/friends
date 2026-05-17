@@ -1,1 +1,1 @@
-# friends
+https://shauryachr.github.io/friends
